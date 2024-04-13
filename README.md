@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jojomojojo222
 - 👀 I’m interested in Art, Philosophy, and Psychology. 
-- 🌱 I’m currently learning Cybersecurity, and Trading. 
+- 🌱 I’m currently learning Cybersecurity and Trading. 
 - 💞️ I’m looking to collaborate on ideas and execution. 
 - 📫 How to reach me by a detailed analysis.
 - 😄 Pronouns: She/Her
